@@ -1,0 +1,2 @@
+# TilSoz-
+kazakh to english
